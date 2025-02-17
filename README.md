@@ -29,6 +29,6 @@ Cloud & Automation((Learning): Linux, CI/CD Pipelines, AWS (beginner)
 
 📫 Connect With Me
 
-🔗 LinkedIn | 🔗 Twitter | 
+🔗 [LinkedIn]([https://www.linkedin.com/in/your-profile/](https://www.linkedin.com/in/sarvagya-gupta-1994a1287/)),🔗 [Twitter]([https://twitter.com/your-handle](https://x.com/Sarvagy62611997?t=_sXNe_j86sqhfbl0EefeOQ&s=09)),📧 **Email:** (Sarvagya653@gmail.com)
 
 Let's build something amazing together! 🚀
